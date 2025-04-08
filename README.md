@@ -18,8 +18,7 @@
 
 📫 **Let’s Connect!**
 
-- 💼 [LinkedIn](https://linkedin.com/in/yourprofile)
-- 🌐 [Portfolio](https://yourwebsite.com)
+- 💼 [LinkedIn]https://www.linkedin.com/in/shiva-gayathri-k-14800120b/?lipi=urn%3Ali%3Apage%3Aprofile_common_profile_index%3B957c7b7a-8ecb-4d13-ba4d-ff0d96c90d76
 - 📬 Email: shivagayathrik2000@gmail.com
 
 ---
