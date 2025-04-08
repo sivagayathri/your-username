@@ -20,7 +20,7 @@
 
 - 💼 [LinkedIn](https://linkedin.com/in/yourprofile)
 - 🌐 [Portfolio](https://yourwebsite.com)
-- 📬 Email: your.email@example.com
+- 📬 Email: shivagayathrik2000@gmail.com
 
 ---
 
